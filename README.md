@@ -5,6 +5,8 @@ The tool to send bulk message on your contact list from https://web.whatsapp.com
 Coded by: erfan4lx
 ➖➖➖➖➖➖
 
+Show on Youtube : https://youtu.be/56lU2kPjSKI
+
 👊 ʍ4ղíƒҽՏԵ0 ϲվҍҽɾ ՏҽϲմɾíԵվ Եҽɑʍ™💪
 
 🔥 ฿Ⱡ₳₵₭ Ⱨ₳₮ Ⱨ₳₵₭ɆⱤ 🔥
