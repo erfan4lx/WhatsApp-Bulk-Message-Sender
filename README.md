@@ -11,7 +11,13 @@ Coded by: erfan4lx
 
 🔥 ฿Ⱡ₳₵₭ Ⱨ₳₮ Ⱨ₳₵₭ɆⱤ 🔥
 
-## • Contact With Me To Get Password On : 
+## • Contact With Me To Get The Password On : 
+
+🆔 Telegram : https://t.me/erfan4lx
+
+🆔 Email : erfan4lx@gmail.com
+
+➖➖➖➖➖➖
 
 🆔 Our Telegram Channel : https://t.me/M4nifest0
 
