@@ -1,8 +1,6 @@
 # WhatsApp-Bulk-Message-Sender
 The tool to send bulk message on your contact list from https://web.whatsapp.com
 
-You can get contact list of your destination group with this tool : https://github.com/erfan4lx/WhatsApp-Group-Contacts-Scraper
-
 ➖➖➖➖➖➖
 Coded by: erfan4lx
 ➖➖➖➖➖➖
