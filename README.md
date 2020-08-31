@@ -1,5 +1,6 @@
 # WhatsApp-Bulk-Message-Sender
 The tool to send bulk message on your contact list from https://web.whatsapp.com
+Just open the file with Python3 like me on video
 
 ➖➖➖➖➖➖
 Coded by: erfan4lx
@@ -11,13 +12,13 @@ Show on Youtube : https://youtu.be/56lU2kPjSKI
 
 🔥 ฿Ⱡ₳₵₭ Ⱨ₳₮ Ⱨ₳₵₭ɆⱤ 🔥
 
-## • Contact With Me To Get The Password On : 
 
-🆔 Telegram : https://t.me/erfan4lx
+***
+Contact me to buy the special tool of this video  =>
 
-🆔 Email : erfan4lx@gmail.com
-
-➖➖➖➖➖➖
+🌐   Contact me via Email : erfan4lx@gmail.com 🌐 
+🌐   Contact me via Telegram : https://telegram.me/erfan4lx 🌐 
+***
 
 🆔 Our Telegram Channel : https://t.me/M4nifest0
 
