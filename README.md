@@ -13,16 +13,11 @@ Show on Youtube : https://youtu.be/56lU2kPjSKI
 🔥 ฿Ⱡ₳₵₭ Ⱨ₳₮ Ⱨ₳₵₭ɆⱤ 🔥
 
 
-***
-Contact me to buy the special tool of this video  =>
+🆔My YouTube Channel : http://youtube.com/erfan4lx
 
-🌐   Contact me via Email : erfan4lx@gmail.com 🌐 
-🌐   Contact me via Telegram : https://telegram.me/erfan4lx 🌐 
-***
+🆔My Telegram Channel : https://t.me/Erfan4lxTeam
 
-🆔 Our Website : https://M4nifest0.com
-
-🆔 Our Telegram Channel : https://t.me/M4nifest0
+🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
 <p align="center">
   Follow Me On
