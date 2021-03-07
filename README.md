@@ -6,11 +6,9 @@ Just open the file with Python3 like me on video
 Coded by: erfan4lx
 ➖➖➖➖➖➖
 
-Show on Youtube : https://youtu.be/56lU2kPjSKI
+Show full video on YouTube : https://youtu.be/56lU2kPjSKI
 
-👊 ʍ4ղíƒҽՏԵ0 ϲվҍҽɾ ՏҽϲմɾíԵվ Եҽɑʍ™💪
-
-🔥 ฿Ⱡ₳₵₭ Ⱨ₳₮ Ⱨ₳₵₭ɆⱤ 🔥
+Show demo video on Instagram : https://www.instagram.com/p/CMHlEgWgpi_/
 
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
