@@ -6,7 +6,7 @@ Just open the file with Python3 like me on video
 Coded by: erfan4lx
 ➖➖➖➖➖➖
 
-Purchase it on my website : https://erfan4lx.com/product/whatsapp-bulk-message-sender
+Purchase it on my website : https://erfan4lx.com
 
 Show full video on YouTube : https://youtu.be/56lU2kPjSKI
 
